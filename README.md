@@ -1,0 +1,3 @@
+- 👋 Hi, I’m The Official Dev, also known as TOD.
+- 👀 I’m an expert developer.
+- 📫 You can reach my by email: theofficial.dev204@gmail.com or by DM on Discord: The Official Dev#1083
